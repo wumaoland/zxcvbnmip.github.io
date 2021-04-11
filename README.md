@@ -1,0 +1,1 @@
+# FUYUKO_diary.github.io
